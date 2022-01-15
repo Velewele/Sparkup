@@ -1,1 +1,1 @@
-# SPARKUP wellness
+# SPARKUP your mental well-being 

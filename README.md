@@ -1,1 +1,1 @@
-# SPARKUP your environment Mindfulness 
+# SPARKUP your giving through crypto gifting and dponsoring

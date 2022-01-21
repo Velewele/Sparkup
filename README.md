@@ -1,1 +1,1 @@
-# SPARKUP your mental well-being 
+# SPARKUP your environment Mindfulness 
